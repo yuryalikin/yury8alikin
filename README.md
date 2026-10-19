@@ -18,4 +18,4 @@ Proactive and self-motivated Software Engineer with 10+ years of experience spec
 
 ### 📫 How to Reach Me
 * **Email:** yury8alikin@gmail.com
-* **LinkedIn:** [linkedin.com/in/yury-alikin](https://linkedin.com/in/yury-alikin)
+* **LinkedIn:** [linkedin.com/in/yuryalikin](https://linkedin.com/in/yuryalikin)
